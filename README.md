@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning how the world works.
 - 🌱 I’m currently learning Git and Chinese.
 - 💞️ I’m looking to collaborate on - actually nothing specific at the moment.
-- 📫 How to reach me, use mail eih@eih.cc
+- 📫 How to reach me, use Facebook
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
